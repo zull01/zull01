@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **whatever interests me, whatever it may be.**
 
-- 👨‍💻 All of my projects are available at [https://mohdali.tk](https://mohdali.tk)
+- 👨‍💻 All of my projects are available [Here](http://linktr.ee/ime__ali)
 
 - 💬 Ask me about **Anything Tech**
 
